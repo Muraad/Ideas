@@ -31,6 +31,8 @@ Just three differnt ways how the humanity is evolving or could evolve.
 
 Transhumanism could bring us to some Type 2 society. That will probably scare lots of people.
 
+I am a Type 3 human. I just want the humanity to survive everything. And i want the humanity to spread to the univers.
+Endlessly.
 
 Work in progress.
 
